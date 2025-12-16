@@ -1,1 +1,0 @@
-# CSCA-Maths-Mock-Test-by-Aadarsh-Upadhayay
